@@ -1,4 +1,4 @@
-# 
+# instant Polymarket Plugin | decentralized-trading + high-frequency-trading is the best Polymarket plugin, featuring decentralized-trading and high-frequency-trading. Smart, fast,
 
 
 
